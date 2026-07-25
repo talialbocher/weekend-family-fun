@@ -12,6 +12,18 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-08-01 / 08-02
+
+- **Hike/nature:** Bear Mountain State Park — Hessian Lake Loop, Bear Mountain, NY
+- **Culture:** Storm King Art Center, New Windsor, NY
+- **Lunch:** Pepe's Tacos, Highland Falls, NY — Mexican
+- **Dessert:** Moo Moo's Creamery, Cornwall-on-Hudson, NY — ice cream
+- **City stroll:** Astoria Park waterfront esplanade, Astoria, Queens, NY
+- **Other:** Socrates Sculpture Park, Astoria/Long Island City, Queens, NY
+- **Lunch:** Taverna Kyclades, Astoria, Queens, NY — Greek seafood
+- **Dessert:** Omonia Cafe, Astoria, Queens, NY — Greek bakery/patisserie, baklava cheesecake
+- **Rain alts named:** West Point Museum, Highland Falls, NY; Museum of the Moving Image, Astoria, Queens, NY
+
 ## 2026-07-25 / 07-26
 
 - **Hike/nature:** South Mountain Reservation — Hemlock Falls Loop, West Orange, NJ ⚠️ *on the avoid list*
