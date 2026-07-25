@@ -24,6 +24,19 @@ the pattern is visible even when the pick wasn't specific.
 - **Dessert:** Omonia Cafe, Astoria, Queens, NY — Greek bakery/patisserie, baklava cheesecake
 - **Rain alts named:** West Point Museum, Highland Falls, NY; Museum of the Moving Image, Astoria, Queens, NY
 
+## 2026-07-25 / 07-26 (revised — built fresh at Tali's live request; see note)
+
+- **Hike/nature:** Hacklebarney State Park, Long Valley/Chester, NJ
+- **Lunch:** Pren Kitchen, Chester, NJ — New American counter-service
+- **Dessert:** Sally Lunn's Tea Shoppe & Restaurant, Chester, NJ — tea & scones
+- **City stroll:** Nyack Main Street & Memorial Park waterfront, Nyack, NY
+- **Culture:** Edward Hopper House Museum & Study Center, Nyack, NY
+- **Lunch:** Hudson House, Nyack, NY — New American, riverside
+- **Dessert:** Temptations Café, Nyack, NY — ice cream & pastries
+- **Rain alts named:** Chester Antique Center, Chester, NJ
+
+Note: the entry immediately below (also dated 2026-07-25 / 07-26) was already sitting in the ledger before this run and breaks the routine's own rules — South Mountain Reservation is avoid-listed, and the Hoboken waterfront walkway would be a 4th appearance. Left it in place per the never-edit-or-delete rule, but this revised entry is the one actually emailed for this weekend, and it treats every place below (including the flawed entry) as already used.
+
 ## 2026-07-25 / 07-26
 
 - **Hike/nature:** South Mountain Reservation — Hemlock Falls Loop, West Orange, NJ ⚠️ *on the avoid list*
