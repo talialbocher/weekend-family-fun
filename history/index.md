@@ -12,6 +12,19 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-08-08 / 08-09
+
+- **Hike/nature:** Sourland Mountain Preserve, Hillsborough, NJ
+- **Lunch:** Nomad Pizza, Hopewell, NJ — wood-fired Neapolitan pizza
+- **Dessert:** Uncle Ed's Creamery, Hopewell, NJ — ice cream
+- **Other:** Lambertville historic downtown & canal towpath, NJ — antiques/galleries stroll
+- **City stroll:** Flushing Meadows Corona Park, Queens, NY
+- **Event:** Hong Kong Dragon Boat Festival, Flushing Meadows Corona Park, Queens, NY
+- **Culture:** Queens Museum — Panorama of the City of New York, Flushing Meadows Corona Park, Queens, NY
+- **Lunch:** Nan Xiang Soup Dumplings, Flushing, NY — Shanghainese soup dumplings
+- **Dessert:** Spot Dessert Bar, Flushing, NY — creative desserts & bubble tea
+- **Rain alts named:** Grounds For Sculpture, Hamilton, NJ; New World Mall food court, Flushing, NY
+
 ## 2026-08-01 / 08-02
 
 - **Hike/nature:** Bear Mountain State Park — Hessian Lake Loop, Bear Mountain, NY
