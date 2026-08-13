@@ -12,6 +12,19 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-08-15 / 08-16
+
+- **Hike/nature:** Rockefeller State Park Preserve, Pocantico Hills/Sleepy Hollow, NY
+- **City stroll:** Tarrytown Main Street & RiverWalk waterfront, Tarrytown, NY
+- **Lunch:** RiverMarket Bar and Kitchen, Tarrytown, NY — New American, farm-to-fork
+- **Culture:** Lyndhurst Mansion, Tarrytown, NY — Gothic Revival mansion tour
+- **Dessert:** Noble Pies, Tarrytown, NY — sweet & savory pies
+- **Culture:** Newark Museum of Art, Newark, NJ
+- **Lunch:** Seabra's Marisqueira, Ironbound, Newark, NJ — Portuguese seafood
+- **City stroll:** Ferry Street, Ironbound, Newark, NJ
+- **Dessert:** Teixeira's Bakery, Ironbound, Newark, NJ — Portuguese pastéis de nata
+- **Rain alts named:** Sunnyside (Washington Irving House), Tarrytown, NY
+
 ## 2026-08-08 / 08-09
 
 - **Hike/nature:** Sourland Mountain Preserve, Hillsborough, NJ
