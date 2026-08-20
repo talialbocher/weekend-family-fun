@@ -12,6 +12,20 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-08-22 / 08-23
+
+- **Other:** Staten Island Ferry, St. George, Staten Island, NY
+- **City stroll:** St. George Waterfront Esplanade, Staten Island, NY
+- **Culture:** Snug Harbor Cultural Center & Botanical Garden (incl. Staten Island Museum, Newhouse Center for Contemporary Art), Staten Island, NY
+- **Lunch:** Frankies Sputino, St. George, Staten Island, NY — Tuscan-inspired Italian
+- **Dessert:** Ralph's Famous Italian Ices, Staten Island, NY
+- **Hike/nature:** Great Swamp National Wildlife Refuge — Wildlife Observation Center boardwalk, Basking Ridge/Chatham, NJ
+- **Culture:** Red Mill Museum Village, Clinton, NJ
+- **Lunch:** Towne Restaurant, Clinton, NJ — American/Greek diner-style
+- **City stroll:** Historic Main Street, Clinton, NJ
+- **Dessert:** Clinton Creamery, Clinton, NJ
+- **Rain alts named:** National Lighthouse Museum, St. George, Staten Island, NY; Hunterdon Art Museum, Clinton, NJ
+
 ## 2026-08-15 / 08-16
 
 - **Hike/nature:** Rockefeller State Park Preserve, Pocantico Hills/Sleepy Hollow, NY
