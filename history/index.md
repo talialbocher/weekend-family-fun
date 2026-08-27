@@ -12,6 +12,19 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-08-29 / 08-30
+
+- **City stroll:** Broad Street & Monmouth Street, downtown Red Bank, NJ
+- **Lunch:** Elli's Backyard, Red Bank, NJ — American/Italian
+- **Dessert:** Fable Creamery, Red Bank, NJ — plant-based ice cream
+- **Event:** The Great Whaleboat Race, Lake Lefferts Park, Matawan, NJ — America's 250th community event
+- **Hike/nature:** Mount Beacon Park loop trail, Beacon, NY
+- **Lunch:** Oui Oui Cuisine, Beacon, NY — French bistro
+- **Dessert:** Beacon Bread Company, Beacon, NY — bakery
+- **City stroll:** Walkway Over the Hudson, Poughkeepsie/Highland, NY
+- **Culture:** Frances Lehman Loeb Art Center, Vassar College, Poughkeepsie, NY
+- **Rain alts named:** Basie Center Cinemas, Red Bank, NJ; Hudson Beach Glass Gallery, Beacon, NY
+
 ## 2026-08-22 / 08-23
 
 - **Other:** Staten Island Ferry, St. George, Staten Island, NY
