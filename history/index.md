@@ -12,6 +12,18 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-09-05 / 09-06
+
+- **Hike/nature:** Tourne County Park, Boonton, NJ
+- **City stroll:** Boonton Main Street Historic District (incl. Grace Lord Park waterfall overlook), Boonton, NJ
+- **Lunch:** Fasil Mediterranean Restaurant, Boonton, NJ — Mediterranean
+- **Event:** Boonton Labor Day Parade & Fire Dept. Carnival, Boonton HS Field, Boonton, NJ
+- **Dessert:** Curly's of Boonton, Boonton, NJ — homemade ice cream
+- **Culture:** Zimmerli Art Museum, Rutgers University, New Brunswick, NJ
+- **Lunch:** Tavern on George, New Brunswick, NJ — casual American
+- **Dessert:** Sunmerry Bakery, Highland Park, NJ — pastries, bread, macarons
+- **Rain alts named:** Craftsman Farms (Stickley Museum), Parsippany, NJ
+
 ## 2026-08-29 / 08-30
 
 - **City stroll:** Broad Street & Monmouth Street, downtown Red Bank, NJ
