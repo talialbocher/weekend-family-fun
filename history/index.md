@@ -12,6 +12,19 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-09-12 / 09-13
+
+- **Culture:** Bruce Museum, Greenwich, CT
+- **Lunch:** Mediterraneo, Greenwich, CT — Mediterranean
+- **City stroll:** Greenwich Avenue, Greenwich, CT
+- **Dessert:** Black Forest Pastry Shop, Greenwich, CT — European bakery, cakes & pastries
+- **Hike/nature:** Dunnfield Creek Trail, Worthington State Forest, Delaware Water Gap NRA, Columbia, NJ
+- **Other:** Kittatinny Point Visitor Center & river overlook, Delaware Water Gap NRA, NJ
+- **Lunch:** Buck Hill Brewery and Restaurant, Blairstown, NJ — American brewpub
+- **City stroll:** Main Street Historic District, Blairstown, NJ
+- **Dessert:** Blairstown Dairy, Blairstown, NJ — soft serve & sundaes
+- **Rain alts named:** Peters Valley School of Craft Gallery, Layton, NJ; Gourmet Gallery, Blairstown, NJ
+
 ## 2026-09-05 / 09-06
 
 - **Hike/nature:** Tourne County Park, Boonton, NJ
