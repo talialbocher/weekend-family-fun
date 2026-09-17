@@ -12,6 +12,19 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-09-19 / 09-20
+
+- **Hike/nature:** Sussex Branch Trail at Waterloo Village, Allamuchy Mountain State Park, Stanhope, NJ
+- **Other:** Waterloo Village historic canal town (general store, gristmill, blacksmith shop), Stanhope, NJ
+- **Lunch:** Krogh's Restaurant & Brew Pub, Sparta, NJ — American brewpub
+- **Dessert:** Sparta Dairy, Sparta, NJ — ice cream
+- **Hike/nature:** Garvies Point Preserve Loop, Glen Cove, NY
+- **Culture:** Garvies Point Museum, Glen Cove, NY — geology & Native American archaeology
+- **City stroll:** Sea Cliff Village (Sea Cliff Avenue, Cliff Walk, Gerard Street Park), Sea Cliff, NY
+- **Lunch:** La Spezia Ristorante, Sea Cliff, NY — family-style Southern Italian
+- **Dessert:** Dessertino & The Crafty Spoon, Sea Cliff, NY — coffee, gelato & desserts
+- **Rain alts named:** Sussex County Historical Society Museum, Newton, NJ; Alpine Creamery, Sparta, NJ; Nassau County Museum of Art, Roslyn, NY
+
 ## 2026-09-12 / 09-13
 
 - **Culture:** Bruce Museum, Greenwich, CT
