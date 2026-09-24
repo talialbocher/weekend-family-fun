@@ -12,6 +12,18 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-09-26 / 09-27
+
+- **Hike/nature:** Sterling Lake Loop Trail, Sterling Forest State Park, Tuxedo/Warwick, NY
+- **City stroll:** Warwick Village (Main St & South St), Warwick, NY
+- **Lunch:** 100 Main, Warwick, NY — Mediterranean
+- **Dessert:** Bellvale Farms Creamery, Warwick, NY — homemade ice cream, Mount Peter
+- **City stroll:** Untermyer Park & Gardens, Yonkers, NY
+- **Culture:** Wave Hill, Riverdale, Bronx, NY — public garden & cultural center
+- **Lunch:** Riverdale Diner, Riverdale, Bronx, NY — American diner
+- **Dessert:** Lost Borough Ice Cream, Downtown Yonkers, NY
+- **Rain alts named:** Sugar Loaf, NY — arts & crafts village; Hudson River Museum & Planetarium, Yonkers, NY
+
 ## 2026-09-19 / 09-20
 
 - **Hike/nature:** Sussex Branch Trail at Waterloo Village, Allamuchy Mountain State Park, Stanhope, NJ
