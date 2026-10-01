@@ -12,6 +12,17 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-10-03 / 10-04
+
+- **Hike/nature:** Inwood Hill Park (Orange/Blue Trail loop), Inwood, Manhattan, NY
+- **Lunch:** Pick and Eat, Washington Heights, Manhattan, NY — eclectic/kid-friendly American
+- **City stroll / Event:** Little Red Lighthouse Festival, Fort Washington Park & Hudson River Greenway, Washington Heights, Manhattan, NY
+- **Dessert:** Carrot Top Pastries, Washington Heights, Manhattan, NY — carrot cake
+- **Other:** Demarest Farms — pumpkin/apple picking, hayride, petting zoo, cider donuts, Hillsdale, NJ
+- **Lunch:** Christopher's a Neighborhood Place, Wayne, NJ — New American
+- **Culture:** Dey Mansion (Washington's Headquarters), Wayne, NJ
+- **Rain alts named:** The Cloisters, Fort Tryon Park, Manhattan, NY; Paterson Great Falls National Historical Park visitor center, Paterson, NJ
+
 ## 2026-09-26 / 09-27
 
 - **Hike/nature:** Sterling Lake Loop Trail, Sterling Forest State Park, Tuxedo/Warwick, NY
