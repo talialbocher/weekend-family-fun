@@ -12,6 +12,18 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-10-10 / 10-11
+
+- **Hike/nature:** Shepherd Lake Loop Trail, Ringwood State Park, Ringwood, NJ
+- **Other:** New Jersey Botanical Garden at Skylands Manor, Ringwood, NJ
+- **Lunch:** Tony's Pizza, Pompton Lakes, NJ — pizzeria
+- **Dessert:** Randy's Homemade Ice Cream, Pompton Lakes, NJ
+- **City stroll:** Valentino Pier (Louis Valentino Jr. Park & Pier), Red Hook, Brooklyn, NY
+- **Lunch:** Red Hook Lobster Pound, Red Hook, Brooklyn, NY — Maine lobster rolls/seafood
+- **Dessert:** Steve's Authentic Key Lime Pie, Red Hook, Brooklyn, NY
+- **Culture:** Pioneer Works, Red Hook, Brooklyn, NY — arts center
+- **Rain alts named:** Ringwood Manor House guided tour, Ringwood, NJ
+
 ## 2026-10-03 / 10-04
 
 - **Hike/nature:** Inwood Hill Park (Orange/Blue Trail loop), Inwood, Manhattan, NY
