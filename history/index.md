@@ -12,6 +12,20 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-10-17 / 10-18
+
+- **Hike/nature:** Batsto Lake Trail (White Trail loop), Wharton State Forest, Hammonton, NJ
+- **Other:** Batsto Village — historic 1800s ironworks/glassmaking village, Hammonton, NJ
+- **Lunch:** Lucille's Country Cooking, Warren Grove, NJ — Pine Barrens diner
+- **Event:** Chatsworth Cranberry Festival, Chatsworth, NJ — juried craft show & live music
+- **Dessert:** The Parlour, Chatsworth, NJ — handmade ice cream
+- **Hike/nature:** Appalachian Trail at Canopus Lake (north section), Clarence Fahnestock Memorial State Park, Kent, NY
+- **City stroll:** Garrison Landing waterfront, Garrison, NY
+- **Culture:** Boscobel House & Gardens grounds, Garrison, NY
+- **Lunch:** Hudson Hil's Market & Cafe, Cold Spring, NY — casual American
+- **Dessert:** Angie's Cafe and Bakery, Cold Spring, NY — bakery since 1994
+- **Rain alts named:** Batsto Village indoor building tour, Hammonton, NJ; Boscobel House indoor mansion tour, Garrison, NY
+
 ## 2026-10-10 / 10-11
 
 - **Hike/nature:** Shepherd Lake Loop Trail, Ringwood State Park, Ringwood, NJ
