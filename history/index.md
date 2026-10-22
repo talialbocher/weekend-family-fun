@@ -12,6 +12,18 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-10-24 / 10-25
+
+- **Hike/nature:** Caumsett State Historic Park Preserve — Fall Seasonal Stroll & paved mansion loop, Lloyd Harbor/Huntington, NY
+- **City stroll:** Cold Spring Harbor Main Street & harborfront, Cold Spring Harbor, NY
+- **Lunch:** Sandbar, Cold Spring Harbor, NY — American comfort food & seafood
+- **Dessert:** Cream Bakery & Cafe, Huntington, NY — mini cakes & donut cakes
+- **Other:** Melick's Town Farm — pick-your-own apples, Oldwick, NJ
+- **Other:** Frenchtown Bridge Street historic district & towpath, Frenchtown, NJ
+- **Lunch:** Frenchtown Inn, Frenchtown, NJ — American bistro
+- **Dessert:** Libbybeans, Frenchtown, NJ — gelato & chocolate café
+- **Rain alts named:** Heckscher Museum of Art, Huntington, NY; Prallsville Mills, Stockton, NJ
+
 ## 2026-10-17 / 10-18
 
 - **Hike/nature:** Batsto Lake Trail (White Trail loop), Wharton State Forest, Hammonton, NJ
