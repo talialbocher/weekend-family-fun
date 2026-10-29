@@ -12,6 +12,20 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-10-31 / 11-01
+
+- **Hike/nature:** Teatown Lake Reservation — Lakeside Loop & Hidden Valley circuit, Ossining, NY
+- **Lunch:** The Boathouse, Ossining, NY — casual waterside American/seafood
+- **City stroll:** Croton Point Park waterfront peninsula walk, Croton-on-Hudson, NY
+- **Dessert:** The Blue Pig, Croton-on-Hudson, NY — homemade ice cream
+- **Event:** The Great Jack O'Lantern Blaze, Van Cortlandt Manor, Croton-on-Hudson, NY
+- **Other:** Kazimiroff Nature Trail (Blue Loop), Hunter Island, Pelham Bay Park, Bronx, NY
+- **City stroll:** City Island Avenue, City Island, Bronx, NY
+- **Lunch:** Johnny's Reef Restaurant, City Island, Bronx, NY — seafood
+- **Culture:** City Island Nautical Museum, City Island, Bronx, NY
+- **Dessert:** Lickety Split, City Island, Bronx, NY — ice cream & gelato
+- **Rain alts named:** Katonah Museum of Art, Katonah, NY; Bartow-Pell Mansion Museum, Pelham Bay Park, Bronx, NY
+
 ## 2026-10-24 / 10-25
 
 - **Hike/nature:** Caumsett State Historic Park Preserve — Fall Seasonal Stroll & paved mansion loop, Lloyd Harbor/Huntington, NY
