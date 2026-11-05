@@ -12,6 +12,18 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-11-07 / 11-08
+
+- **Hike/nature:** Schooley's Mountain Park — Boulder Gorge waterfall loop, Long Valley, NJ
+- **Other:** Alstede Farms — farm market & bakery, Chester, NJ
+- **Lunch:** Valley Restaurant, Long Valley, NJ — American diner, family-run since 1978
+- **Dessert:** Dalcourt's Desserts, Hackettstown, NJ — gourmet dessert shop
+- **Hike/nature:** Tallman Mountain State Park — Hudson River Overlook Loop, Palisades/Piermont, NY
+- **City stroll:** Piermont Avenue & waterfront, Piermont, NY
+- **Lunch:** O Lar, Piermont, NY — pizza & Greek-inspired salads/seafood
+- **Dessert:** Piermont Creamery, Piermont, NY — ice cream
+- **Rain alts named:** Liberty Village Premium Outlets, Flemington, NJ; Palisades Center Mall, West Nyack, NY
+
 ## 2026-10-31 / 11-01
 
 - **Hike/nature:** Teatown Lake Reservation — Lakeside Loop & Hidden Valley circuit, Ossining, NY
