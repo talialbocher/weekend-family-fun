@@ -12,6 +12,19 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-11-14 / 11-15
+
+- **City stroll:** Asbury Park Boardwalk & Convention Hall, Asbury Park, NJ
+- **Lunch:** Iron Whale, Asbury Park, NJ — seafood
+- **Other:** Silverball Retro Arcade, Asbury Park, NJ — vintage pinball & arcade museum
+- **Dessert:** Cookman Creamery, Asbury Park, NJ — artisanal ice cream
+- **Hike/nature:** Ward Pound Ridge Reservation — Deer Hollow Trail Loop, Cross River, NY
+- **Culture:** Aldrich Contemporary Art Museum, Ridgefield, CT
+- **Lunch:** Bailey's Backyard, Ridgefield, CT — farm-to-table American
+- **Dessert:** Deborah Ann's Sweet Shoppe, Ridgefield, CT — candy & ice cream
+- **City stroll:** Main Street, Ridgefield, CT — cultural district
+- **Rain alts named:** Keeler Tavern Museum & History Center, Ridgefield, CT
+
 ## 2026-11-07 / 11-08
 
 - **Hike/nature:** Schooley's Mountain Park — Boulder Gorge waterfall loop, Long Valley, NJ
