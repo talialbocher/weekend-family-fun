@@ -12,6 +12,18 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-11-21 / 11-22
+
+- **Hike/nature:** Sunken Meadow State Park — Bluff Trail along the Nissequogue River, Kings Park, NY
+- **Lunch:** Main Street Cafe, Northport, NY — seafood & American, harborside
+- **City stroll:** Northport Village Main Street & Harborfront, Northport, NY
+- **Dessert:** Northport Sweet Shop, Northport, NY — ice cream sodas, shakes & malts since 1930s
+- **Other:** Cora Hartshorn Arboretum & Bird Sanctuary, Short Hills, NJ — low-key wooded walk
+- **City stroll:** Downtown Cranford & Rahway River Parkway, Cranford, NJ
+- **Lunch:** Garlic Rose Bistro, Cranford, NJ — garlic-forward contemporary Italian-American
+- **Dessert:** Vanilla Bean Creamery, Cranford, NJ — small-batch ice cream
+- **Rain alts named:** Vanderbilt Museum & Planetarium, Centerport, NY; Macculloch Hall Historical Museum & Gardens, Morristown, NJ
+
 ## 2026-11-14 / 11-15
 
 - **City stroll:** Asbury Park Boardwalk & Convention Hall, Asbury Park, NJ
