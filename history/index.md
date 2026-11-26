@@ -12,6 +12,18 @@ the pattern is visible even when the pick wasn't specific.
 
 ---
 
+## 2026-11-28 / 11-29
+
+- **Hike/nature:** Jenny Jump State Forest — Ghost Lake Trail loop, Hope, NJ
+- **Lunch:** James on Main, Hackettstown, NJ — rustic New American
+- **Dessert:** Main Street Ice Cream & Creperie, Hackettstown, NJ
+- **Other:** Edith G. Read Wildlife Sanctuary, Rye, NY — Long Island Sound shoreline walk
+- **Lunch:** Rafele Rye, Rye, NY — Italian, Michelin Bib Gourmand
+- **City stroll:** Purchase Street & waterfront esplanade, Rye, NY
+- **Dessert:** Longford's Ice Cream, Rye, NY — small-batch ice cream & gelato since 1992
+- **Culture:** Rye Arts Center, Rye, NY
+- **Rain alts named:** Pequest Trout Hatchery & Natural Resource Education Center, Oxford, NJ; Neuberger Museum of Art, Purchase, NY
+
 ## 2026-11-21 / 11-22
 
 - **Hike/nature:** Sunken Meadow State Park — Bluff Trail along the Nissequogue River, Kings Park, NY
